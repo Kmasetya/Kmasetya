@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Fandi Ardiyanto!  
+# 👋 Hi, I'm Kamasetya Dwi Dzaka!  
 
 ## 🚀 About Me  
 - 🎓 Informatics student (4th semester)  
